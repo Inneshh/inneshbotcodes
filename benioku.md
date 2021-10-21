@@ -1,0 +1,1 @@
+Neden burdasin  bi dusun
